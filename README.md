@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @999RAIDS
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on A Game
+- 📫 How to reach me Sub To My YT
